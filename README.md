@@ -1,0 +1,2 @@
+# ikigai_prototipo
+ 
